@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @samsungasongongithub!!
+- 👋 Hi, I’m @The-Iced!!
 - 👀 I’m interested in learning to code on many websites!
 - 🌱 I’m currently learning github,codecademy and 
 - 💞️ I’m looking to collaborate on ..uh no collabooration plans right now but feel free to give some tips :)
